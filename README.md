@@ -1,1 +1,1 @@
-# sp2022 vtor kol
+# sp2022  zadachi vtor kol
