@@ -1,1 +1,1 @@
-# sp2022 prv kol
+# sp2022 vtor kol
