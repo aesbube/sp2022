@@ -1,1 +1,1 @@
-# sp2022  zadachi vtor kol
+SP second midterm exercises 2022/2023
